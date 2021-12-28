@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Gabriela
+- 👀 I’m interested in communication, arts and tech (I'm a Spanish Translator!)
+- 🌱 I’m currently learning the skills to be a complete Frontend developer, and int he future be a Fullstack dev.
+- 💪🏼 I'm up to collaborate on any project to gain experience, and to meet creative and wonderfull people who like to work as a team
+- 📫 How to reach me? Likedin/in/gabriela-richarte-translator
